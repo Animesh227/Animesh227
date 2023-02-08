@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **animeshchakraborty.227@gmail.com**
 
-- 📄 Know about my experiences [https://tinyurl.com/yckbvmna](https://tinyurl.com/yckbvmna)
+- 📄 Know about my experiences 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
